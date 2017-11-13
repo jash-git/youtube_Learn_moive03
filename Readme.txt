@@ -22,10 +22,10 @@ https://www.youtube.com/watch?v=WUPLn05cbRc
 08.超省錢初心者燉飯「根本月底救星」
 https://www.youtube.com/watch?v=KEDaJOf9vfQ
 
-09.大創10分鐘簡單DIY feat熱熔膠 DIY Daiso 10 mins charms with hot glue│碰果 手作
+09.大創10分鐘簡單DIY feat熱熔膠 DIY Daiso 10 mins charms with hot glue[使用黏土模子自製吊飾]
 https://www.youtube.com/watch?v=-nUnI5P5e0Q
 
-10.掛勾原來這麼好用！10招讓你東西全都乖乖歸位
+10.掛勾原來這麼好用！10招讓你東西全都乖乖歸位-OK
 https://www.youtube.com/watch?v=sBWRzoEpvfk
 
 11.必學！2分鐘學會紙膠帶生活10大妙用 網友：「自製封口帶又萌又實用！」
