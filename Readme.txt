@@ -25,10 +25,10 @@ https://www.youtube.com/watch?v=KEDaJOf9vfQ
 09.大創10分鐘簡單DIY feat熱熔膠 DIY Daiso 10 mins charms with hot glue[使用黏土模子自製吊飾]
 https://www.youtube.com/watch?v=-nUnI5P5e0Q
 
-10.掛勾原來這麼好用！10招讓你東西全都乖乖歸位-OK
+10.掛勾原來這麼好用！10招讓你東西全都乖乖歸位[收納牙膏牙刷,手機充電架,收納眼鏡,自製中型收納盒,電腦耳機收納架,杯子收納架(個人認為要斜黏),鍋蓋收納架,USB線收納架]
 https://www.youtube.com/watch?v=sBWRzoEpvfk
 
-11.必學！2分鐘學會紙膠帶生活10大妙用 網友：「自製封口帶又萌又實用！」
+11.必學！2分鐘學會紙膠帶生活10大妙用 網友：[自製封口條,自製手環,特製書籤,安全指甲剪,自製小白板]
 https://www.youtube.com/watch?v=rS0G5130yCc
 
 12.生活智慧王！連你阿母都不知道的3種寶特瓶妙用
