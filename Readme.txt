@@ -40,7 +40,7 @@ https://www.youtube.com/watch?v=xEAOvFG1AmM
 14.15 Sponge Life Hacks You Should Know (海綿寶寶15個功用) [一次擦兩片玻璃,針線收藏,肥皂泡棉,放在盆栽底部做簡易自動保濕器,控制膠水用量,切成網狀方便清洗電扇網子,清洗塑膠管水管內壁,保冰袋,快速去指甲油,滑鼠謢腕枕,椅腳墊,種綠豆]
 https://www.youtube.com/watch?v=WM4KT4o2xq4
 
-15.9 Ideas with Adhesive Tape
+15.9 Ideas with Adhesive Tape (膠帶9個創意) [控制電鑽鑽孔深度,方便帶手鍊,確定湯匙裝粉保持平匙,去除衣服毛削,臨時螺絲收納,作出圖案轉印貼紙]
 https://www.youtube.com/watch?v=EtNxymEE9ok
 
 16.16 Ways to Use Toothpicks
