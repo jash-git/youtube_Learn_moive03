@@ -46,7 +46,7 @@ https://www.youtube.com/watch?v=EtNxymEE9ok
 16.16 Ways to Use Toothpicks (牙籤16個創意) [書籤,膠帶頭,練習筷,自製棉花棒,自製簡易叉子,幼苗支架,螺絲孔太鬆補救,木頭補洞,自製簡易陀螺]
 https://www.youtube.com/watch?v=YjtdSaZfldU
 
-17.22 Rubber Band Hacks to Simplify Your Life
+17.22 Rubber Band Hacks to Simplify Your Life (橡皮筋22個創意) [遙控器防滑,湯匙防滑,吸管固定,茶包固定,電池充電與否標記,相框內相片防滑,尖嘴鉗變身焊接用的固定夾,指夾由瓶蓋阻尼增加器,牛仔褲拉鍊防滑裝置,臨時橡皮擦,叉子便烤肉夾,砧板防滑,手機臨時固定器,崩牙螺絲旋開補救,自製線頭保護,限制洗髮精按壓量,鍋蓋防滑]
 https://www.youtube.com/watch?v=uSfpjRZz0DU
 
 18.20 Hangers Life Hacks Everyone Should Know
