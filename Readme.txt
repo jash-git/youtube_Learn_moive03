@@ -43,7 +43,7 @@ https://www.youtube.com/watch?v=WM4KT4o2xq4
 15.9 Ideas with Adhesive Tape (膠帶9個創意) [控制電鑽鑽孔深度,方便帶手鍊,確定湯匙裝粉保持平匙,去除衣服毛削,臨時螺絲收納,作出圖案轉印貼紙]
 https://www.youtube.com/watch?v=EtNxymEE9ok
 
-16.16 Ways to Use Toothpicks (牙籤16個創意) []
+16.16 Ways to Use Toothpicks (牙籤16個創意) [書籤,膠帶頭,練習筷,自製棉花棒,自製簡易叉子,幼苗支架,螺絲孔太鬆補救,木頭補洞,自製簡易陀螺]
 https://www.youtube.com/watch?v=YjtdSaZfldU
 
 17.22 Rubber Band Hacks to Simplify Your Life
@@ -100,6 +100,17 @@ https://www.youtube.com/watch?v=JftzvICPdtc
 34.自己制作无叶风扇
 https://www.youtube.com/watch?v=CZDbHosKoGQ
 
+35.42 GENIUS HACKS THAT WILL TAKE YOUR LIFE TO A WHOLE NEW LEVEL
+https://www.youtube.com/watch?v=AmuoFM4afMk
+
+36.12 Zip Tie Life Hacks
+https://www.youtube.com/watch?v=ZJQjziJKQ1s
+
+5 Ideas De Reciclar Tapones
+https://www.youtube.com/watch?v=fxHIaDCMHcQ
+
+6 FORMAS DE REUTILIZAR LOS ROLLOS DE PAPEL HIGIÉNICO
+https://www.youtube.com/watch?v=dv2y9vfX5Qk
 
 35.自製信號彈
 https://www.youtube.com/watch?v=PDrX7-wOQVA
@@ -109,3 +120,5 @@ https://www.youtube.com/watch?v=fFFbiXX7PZ8
 
 LIFE HACKS
 https://www.youtube.com/watch?v=g1sz1Lj1su4&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+
+https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
